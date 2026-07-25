@@ -6,3 +6,5 @@ https://www.youtube.com/watch?v=NvMqkOxmasI&pp=ugMGCgJwdBABugUEEgJwdMoFD2Jlbmphb
 https://www.youtube.com/watch?v=ZxYEKaAeBew&pp=ygUPYmVuamFtaW4gZ3JhaGFt
 https://www.investopedia.com/terms/b/benjamin-method.asp
 https://revistas.pucsp.br/index.php/CAFI/article/view/65982
+
+Link do notebookLM https://notebooklm.google.com/notebook/8cf1e895-dfcc-4668-9b08-9b27f84f3516
